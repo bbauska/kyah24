@@ -1,2 +1,2 @@
 # kyah24
-Kyah's 24th birthday countdown to November 4, 2025. Her 24th birthday!
+Kyah turns 24 on November 4, 2025.  Born into this World in Bellevue, WA in the year 2001.
